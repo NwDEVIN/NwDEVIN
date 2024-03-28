@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @NwDEVIN
+- 👀 I’m interested in coding...
+- 🌱 I’m currently learning htmlllll..
+- ⚡ Fun fact: I am not a full time Developer..
